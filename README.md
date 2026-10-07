@@ -1,0 +1,1 @@
+# rtx50-gaming-laptops
